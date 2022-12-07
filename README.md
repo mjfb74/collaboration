@@ -1,7 +1,7 @@
 # collaboration
 
-little bio
+little bio - Barak
 
-receipssehejd
+receipssehejd - for pizza
 
-definition is a horse
+definition is a horse - or a pig
