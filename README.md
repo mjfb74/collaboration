@@ -1,7 +1,5 @@
 # collaboration
 
-little bio
+ding dong
 
-receipssehejd
-
-definition is a horse
+ich bin ein paket
